@@ -1,3 +1,3 @@
 Xawas5580
 
-Jestem Hakerem 
+Człowiek Wielu talentów 
